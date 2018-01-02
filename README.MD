@@ -1,0 +1,1 @@
+# Gentoo for everyone
